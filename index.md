@@ -13,3 +13,5 @@ Wie Josef Hader singt:
 >Der Eine kommt nach Paris
 >Der Andere nach Schrunns-Tschagunns
 >Ja ja das Leben spielt mit uns 
+
+<img src="https://www.dresdner.nu/interviews/ivimages/2018-09-26-5BAB7A94-331F.jpg"/>
