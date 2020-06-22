@@ -7,3 +7,9 @@
 * Silentium (2004)
 * Der Knochenmann (2009)
 * Das ewige Leben (2015)
+
+Wie Josef Hader singt:
+>So ist das Leben
+>Der Eine kommt nach Paris
+>Der Andere nach Schrunns-Tschagunns
+>Ja ja das Leben spielt mit uns 
